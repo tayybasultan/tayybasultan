@@ -112,7 +112,7 @@ This ensures quality, transparency, and long-term success.
 
 - 🌐 Portfolio: https://tayybas.lovable.app
 - 💼 Upwork: https://www.upwork.com/freelancers/~01b1b903bda03e233b?mp_source=share
-- 📧 Email: tayybamari@gmail.com
+- 📧 Email: tayybamirza11@gmail.com
 - 💻 GitHub: https://github.com/tayybasultan
 
 ---
